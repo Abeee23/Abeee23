@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @Abeee23
-- 👀 I’m interested in logo design
-- 🌱 I’m currently learning it
+- 🌱 here to learn new things
 - 📫 How to reach me phaniabhi23@gmail.com
